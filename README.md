@@ -1,4 +1,4 @@
-# Hi there, I'm Oyelabi Lydia Adeolu 👋 🧪💻
+# Hi there, I'm Lydia Adeolu Oyelabi 👋 🧪💻
 
 > *"Dedicated to leveraging biochemistry, data science, and drug discovery to transform human health into true wealth."*
 
